@@ -1,0 +1,1 @@
+# Andrean_Kosasih_2306020_Praktikum_AI_6
